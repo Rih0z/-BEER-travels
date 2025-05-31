@@ -8,6 +8,9 @@
 ## 🍻 **1日目：North Park エリア**
 *サンディエゴの「ヒップスター街」でクラフトビール巡り*
 
+[📱 North Park到着時のツイート](https://x.com/rihobeer2/status/1926037861041578145)  
+[📱 North Parkの様子](https://x.com/rihobeer2/status/1926039070863421489)
+
 ### 📍 訪問したブルワリー・バー
 
 **Colima's Mexican Food** 🌯
@@ -18,6 +21,7 @@
 **Modern Times Flavordome** 🏮
 * **特徴**: ユニークな内装（フロッピーディスクアート、本の積み重ねバー）、陽気な空気感
 * **飲んだビール**: BLACK House（ナイトロコーヒービール）- とてものんびり飲めて美味しかった
+* [📱 Modern Timesでの様子](https://x.com/rihobeer2/status/1926047666691006556)
 
 **North Park Beer Company** 🏆
 * **特徴**: 2022年GABF 2,001–5,000バレル部門「Brewery of the Year」受賞
@@ -26,6 +30,7 @@
 **Seek Beer Co** 🎯
 * **特徴**: North Park最新ブルワリー、多彩なコラボレーション
 * **飲んだビール**: West Coast IPA
+* [📱 Seek Beer Coでの体験](https://x.com/rihobeer2/status/1926144486607827141)
 
 **Belching Beaver** 🦫
 * **飲んだビール**: ピーナッツバターミルクスタウト
@@ -34,6 +39,8 @@
 * **特徴**: フルサービスレストラン、50タップ
 * **飲んだビール**: West Coast IPA
 * **食事**: ハンバーガー - とても美味しかった
+* [📱 ビアバーでの様子1](https://x.com/rihobeer2/status/1926048978325364983)
+* [📱 ビアバーでの様子2](https://x.com/rihobeer2/status/1926057294288019881)
 
 **Pure Project** 🌿
 * **飲んだビール**: West Coast IPA
@@ -59,7 +66,9 @@
 
 ### 🏁 開始：朝食とAleSmith
 * ホテルの近くのチキンとパイのお店で朝食（アメリカらしい量の多い朝食）
+* [📱 朝食の様子](https://x.com/rihobeer2/status/1926325469839782122)
 * Uberで30ドルほど支払い、AleSmithに到着（バスでのアクセスは困難）
+* [📱 AleSmithでの体験](https://x.com/rihobeer2/status/1926346791949132060)
 * 最初にケルシュからスタート
 * **Monsters Park Chocolate Edition**を試飲:
    * バーボン樽熟成インペリアルスタウト
@@ -74,6 +83,8 @@
    * 松のような香りが特徴的
    * 最近の流行と違い、伝統的なスタイルを堪能
 * **感想**: 50以上のタップがあり、ビールの種類が豊富。明るく開放的な空間で、多くの地元の人々で賑わっていた。大型の醸造設備も見ることができた。
+* [📱 Ballast Pointでの体験1](https://x.com/rihobeer2/status/1926393042698739738)
+* [📱 Ballast Pointでの体験2](https://x.com/rihobeer2/status/1926390707826102455)
 
 ### 🏭 Societe Brewing Company
 * **飲んだビール**:
@@ -83,6 +94,7 @@
 * **食事**: 併設のChachos Tacosでタコスとブリトーを楽しむ
    * ボリューミーで非常に美味しかった
    * サンディエゴの地元メキシカンフードを体験
+* [📱 Societeでの様子](https://x.com/rihobeer2/status/1926440487440760926)
 
 ### 🍺 Hopnonymous Brewing
 * **飲んだビール**:
@@ -93,6 +105,7 @@
    * 閉店間際まで店内が賑わっていた
    * 若者が多く、終始盛り上がっていた雰囲気
    * 最近のトレンドと伝統的なスタイルの両方を体験
+* [📱 Hopnonymousでの体験](https://x.com/rihobeer2/status/1926489370585923856)
 
 ### 🏨 宿泊：Motel 6 San Diego North
 * タクシーで移動
@@ -105,6 +118,7 @@
 * 10時過ぎにオーシャンビーチに到着し、散歩を楽しむ
 * ビーチに遊びに行っている人が多く、観光地の雰囲気が楽しめた
 * **Mike's Taco Club**でタコスを朝ごはんに食べた - とても美味しかった
+* [📱 朝食タコスの様子](https://x.com/rihobeer2/status/1926696513100550288)
 
 ### 🍕 Pizza Port Ocean Beach
 * 店員さんも気さくで心地よかった
@@ -114,24 +128,34 @@
   * **15執念のWCIPA** - とても美味しかった、口当たりが水のように滑らかで、ほどよい苦さが心地よかった、モダンな作りのWCIPAで美しさを感じる、BREAK SIDEに近いと思う
 * 大きなピザが一切れ3-4ドルととても安かった
 * ピザとビールセットでどんどん楽しめた
+* [📱 Pizza Portの様子1](https://x.com/rihobeer2/status/1926696877275136192)
+* [📱 Pizza Portの様子2](https://x.com/rihobeer2/status/1926703584650858727)
+* [📱 Pizza Portの様子3](https://x.com/rihobeer2/status/1926707004149572078)
 
 ### 🍻 California Wild Ales
 * ビアフライトを楽しむ
 * サワー、サワー、ゴーゼ、インペリアルスタウトと幅広く試飲
 * 酸っぱいビールが非常に美味しかった
+* [📱 California Wild Alesでの体験](https://x.com/rihobeer2/status/1926720627391545470)
 
 ### 🌿 PURE PROJECT
 * Fieldworkとのコラボレーションビール「MURKELEY」を試飲
 * マーキーダブルIPAの濃厚な濁りと果実にかぶりつくようなジューシーさを堪能
 * 他にも多様なスタイルのビールがあり、実験的で冒険的なラインナップに感動
+* [📱 PURE PROJECTでの体験1](https://x.com/rihobeer2/status/1926734000346804731)
+* [📱 PURE PROJECTでの体験2](https://x.com/rihobeer2/status/1926737431140716915)
+* [📱 PURE PROJECTでの体験3](https://x.com/rihobeer2/status/1926741242332729489)
 
 ### 🏆 NORTH PARK再訪
 * WCIPAを飲む - すごく良かった
+* [📱 NORTH PARK再訪1](https://x.com/rihobeer2/status/1926747350938112346)
+* [📱 NORTH PARK再訪2](https://x.com/rihobeer2/status/1926768192132632932)
 
 ### ✈️ 空港へ
 * Uberで空港に向かう - 20ドルほどで妥当な価格
 * 保安検査場の後にStoneのタップルームに立ち寄る
 * 店員さんがビールをプラカップに移してくれて、搭乗ギリギリまで飲むことができた
+* [📱 空港でのラストビール](https://x.com/rihobeer2/status/1926783248207630519)
 
 ## 💡 **体験のまとめ & 感想**
 
