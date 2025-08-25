@@ -1,242 +1,261 @@
-# 🏆 ラスベガス最強ビール旅行プラン - WBC/GABF受賞ブルワリー優先版
+# 🏆 ラスベガス最強ビール旅行プラン v1.1 - 実体験反映版
 
-## 8/23(土) - 8/24(日) 完全攻略ガイド
+*実体験フィードバック循環プロンプトによる継続改善システム*
 
-*World Beer Cup & GABF 受賞ブルワリーを中心とした、ビール愛好者のための究極のブルワリー巡り*
+## 🆕 **v1.1 アップデート内容（実体験反映）**
 
------
+### ✅ **実体験済み検証事項**
+- **11:30 AM着陸**: 現実的なタイムライン確認
+- **ラスベガス暑さ**: 予想以上、バス移動非現実的
+- **Hampton Inn選択**: $150コスパ最強、Hilton系スマホチェックイン完璧
+- **CraftHaus Henderson到着**: 13:30、Czech Plz金賞ビール体験完了
+- **🆕 Atomic Liquors新発見**: 15:23到着、ラスベガス最古バー＋最新クラフト文化の融合
+- **SNS記録**: Twitter/Instagram投稿済み（CraftHaus + Atomic Liquors）
 
-## 🏆 **受賞ブルワリー ハイライト**
-
-### 🥇 **Able Baker Brewing** - *THE ULTIMATE CHAMPION*
-
-- **2022年 World Beer Cup GOLD MEDAL** 受賞
-- **2025年 World Beer Cup GOLD MEDAL** 受賞（El Pato Loco Contemporary American-Style Lager）
-- **Vegas Weekly Best Brewery 4年連続受賞**（2021-2023、2025）
-- **評価:** ラスベガス絶対王者、国際的に認められた品質
-
-### 🥇 **CraftHaus Brewery**
-
-- **2024年 GABF GOLD MEDAL** 受賞（Czech Plz - Kellerbier/Zwickelbier）
-- **Nevada’s Greenest Brewery 2018**
-- **評価:** MonkishスタイルIPAファンが絶対気に入る品質重視ブルワリー
-
-### 🥇 **HUDL Brewing**
-
-- **Head Brewer Joe Cuozzo**: GABF 4回受賞（2002, 2004, 2016, 2021）+ World Beer Cup 3回受賞（2004, 2024）
-- **評価:** 伝統的スタイルの完璧な実行力を持つ実力派
-
------
+---
 
 ## 📅 **8/23 (土) - Award-Winning Breweries Discovery Day**
 
-### 🛬 **12:00 PM - 空港到着 & 準備**
+### 🛬 **11:30 AM - 空港着陸 & 暑さ対策最重要** 🆕
 
-- 空港からUberでホテルへ
-- **Pro Tip:** WBC/GABF受賞ビールリストをスマホに保存
+- **🔥 Critical**: ラスベガス暑さ予想以上→Uber移動必須
+- **バス計画中止**: 暑すぎて非現実的
 
-### 🥇 **2:00 PM - CraftHaus Brewery Henderson（GABF金賞受賞蔵）**
+### 🏨 **12:00 PM - Hampton Inn チェックイン & 荷物預け** 🆕
+
+**📍 755 Sierra Vista Dr, Las Vegas, NV 89169**
+- **実証済み最適解**: $150/泊（NYC半額以下）
+- **Hilton系**: スマホチェックイン/アウト完結
+- **荷物預け**: CraftHaus行き前に必須
+
+### 🥇 **1:30 PM - CraftHaus Brewery Henderson（GABF金賞受賞蔵）** ✅
 
 **📍 7350 Eastgate Rd, Ste 110, Henderson, NV 89011**
-**営業時間:** 土曜 12:00 PM - 11:00 PM
+**実訪問時刻**: 13:30頃到着 🆕
 
-#### **なぜここが最初？**
-
-- **2024年GABF金賞受賞**の実力を確認
-- **品質へのこだわり**がMonkish愛好者にマッチ
-- Henderson本店で**完全な醸造設備見学**可能
+#### **実体験確認済み:**
+- **Czech Plz**: 2024年GABF金賞ビール ✅ 体験済み
+- **醸造設備**: SNS投稿完了
+  - Twitter: https://x.com/rihobeer2/status/1959342560029126724?s=46
+  - Instagram: https://www.instagram.com/p/DNwHDda5MMG/?igsh=NXp5c3ptZnVpbHph
 
 #### **絶対飲むべきビール:**
+1. **Czech Plz** - 2024年GABF金賞受賞ビール（必須！）✅ 実体験済み
+2. **Tropical Forrest Hazy IPA** - Monkishスタイルファンに最適
+3. **Final Boss** - Bourbon Barrel-aged Double Oatmeal Stout
+4. **Welcome to Fabulous** - ラスベガス限定ネーミング
 
-1. **Czech Plz** - 2024年GABF金賞受賞ビール（必須！）
-1. **Tropical Forrest Hazy IPA** - Monkishスタイルファンに最適
-1. **Final Boss** - Bourbon Barrel-aged Double Oatmeal Stout
-1. **Welcome to Fabulous** - ラスベガス限定ネーミング
+### 🆕 **3:23 PM - Atomic Liquors（新発見！最古のフリースタイルバー）** ✅
 
-#### **特徴 & 体験:**
+**実訪問時刻**: 15:23到着 🆕
+**実体験SNS**: https://x.com/rihobeer2/status/1959384189574562271?s=61
 
-- **醸造窓越し見学:** 品質管理の徹底ぶりを確認
-- **Side-pull tap:** 本格的Munich-style Dunkel slow pour
-- **Head Brewer Cameron Fisher:** UNLV卒、World Beer Cup gold経験者
-- **フードペアリング:** The Nookキッチンの charcuterie & cheese板
-- **滞在時間:** 2時間（受賞ビールをじっくりテイスティング）
+#### **なぜここが新発見として重要:**
+- **ラスベガス最古のフリースタイルバー**でありながらクラフトビール充実
+- **🆕 厳選の凄さ**: タップ数10程度だが驚異的品質のセレクション
+- **🆕 全国仕入れ力**: アメリカは基本ローカルのみなのに全国から厳選
+- **Mortalis、Bale Breaker**など超高級タップあり 🆕修正
+- **🆕 かっこいい**: この仕入れ力は本当に驚異的
 
-### 🍺 **4:30 PM - Bad Beat Brewing**
+#### **実体験による評価:**
+- **ビール愛**: 本物のビール愛を感じる場所 ✅
+- **🆕 厳選眼**: 10タップ程度でも全国から選び抜かれた品質 ✅
+- **歴史 + 革新**: 最古バーが最新クラフトビール文化も理解
+- **🆕 仕入れ哲学**: ローカル中心のアメリカで全国展開する凄さ
 
-**📍 3045 S Valley View Blvd, Las Vegas, NV 89102**
+#### **特徴:**
+- **歴史**: ラスベガス最古フリースタイルバー
+- **現代性**: 最新クラフトビールトレンドも完全把握
+- **セレクション**: 全米主要都市+ローカルの完璧バランス
+- **滞在時間**: 1.5時間（予想以上の充実で長居必須）
 
-- **役割:** 移動の合間、ラスベガスらしいテーマ体験
-- **特徴:** ポーカー/カジノモチーフの地元ブルワリー
-- **必須ビール:** West Coast IPA（MonkishスタイルIPA愛好者向け）
-- **滞在時間:** 1時間
+### 🆕 **5:00 PM - Beer Zombies（モダンヘイジー専門店）** ✅
 
-### 🌟 **6:00 PM - Evolve Brewing by Aces & Ales**
+**実訪問体験**: 土曜日最終訪問 🆕
+**実体験SNS**: 
+- Twitter: https://x.com/rihobeer2/status/1959404484016414962?s=61
+- Instagram: https://x.com/rihobeer2/status/1959404484016414962?s=61
 
-**📍 8680 W Sunset Rd E100, The Bend**
+#### **実体験による評価:**
+- **超モダンヘイジー**: Brujos、Fidensレベルの完成度 ✅
+- **特徴**: 甘さとクリーミーさが際立つ
+- **品質**: じっくり飲みたかったが体力切れ
+- **体力消耗**: Atomic Liquors充実→長時間滞在→疲労蓄積
 
-- **特徴:** 最新設備の10-barrel system、Chemical Engineering卒Head Brewer
-- **必須体験:** 地元コラボレーションビール各種
-- **フード:** Executive Chef Krystal Mezaのガストロパブ料理
-- **滞在時間:** 1.5時間
+#### **学んだ教訓:**
+- **体力管理**: 3店舗目で疲労ピーク
+- **じっくり楽しむには**: より少ない店舗数か体力配分要
+- **品質**: 間違いなくリピート価値あり
 
-### 🍽️ **8:00 PM - 夕食 & 土曜夜の締め**
+### ❌ **6:30 PM - Tacos El Gordo（失敗体験から学ぶ）**
 
-- Evolve Brewingで本格的な夕食
-- 明日のWorld Cup Champion brewery攻略に備える
+**Google Maps**: https://maps.app.goo.gl/WBVHAxtFxsQ12qCX6?g_st=ipc
+**Uber運転手推奨**: 美味しいと聞いていた 🆕
 
------
+#### **失敗要因分析:**
+- **暑さ＋人口密度**: 店内クーラー不十分、注文列の体力消耗
+- **食事不足**: 飛行機内ソイジョイのみ→酔い回りすぎ
+- **体力切れ**: ブルワリー3店舗後の限界
+- **注文スタイル**: 列に並んで注文→体力必要なシステム
+
+#### **重要な学習:**
+- **食事戦略**: 各ブルワリーで必ず軽食摂取必須
+- **体力配分**: 3店舗が現実的上限
+- **暑さ対策**: 屋外・人口密集地での食事は避ける
+
+### 🏨 **7:30 PM - ホテル帰還 & 土曜終了**
+
+**実際の体験**:
+- **総訪問**: ブルワリー2件＋ビアバー1件で体力限界
+- **学習**: 食事不足＋暑さ＋アルコール = 危険な組み合わせ
+- **成功**: CraftHaus金賞、Atomic Liquors新発見、Beer Zombies高品質確認
+
+---
 
 ## 📅 **8/24 (日) - World Beer Cup Champion Brewery Row 制覇の日**
 
 ### ☕ **10:00 AM - Coffee & 戦略確認**
 
-- Arts Districtでコーヒー
-- WBC/GABF受賞ビールリスト最終確認
-
 ### 🏆 **11:30 AM - Able Baker Brewing（THE ULTIMATE CHAMPION）**
 
 **📍 1510 S Main St, Ste 120, Las Vegas, NV 89104**
-**営業時間:** 日曜 11:30 AM - 11:00 PM
-
-#### **なぜここが最重要？**
-
-- **World Beer Cup 2回金賞受賞**（2022年 & 2025年）
-- **Vegas Weekly Best Brewery 4年連続受賞**
-- **ラスベガス代表ブルワリーの絶対王者**
 
 #### **絶対飲むべき受賞ビール:**
+1. **El Pato Loco** - 2025年World Beer Cup金賞受賞
+2. **Atomic Duck IPA** - シグネチャービール
+3. **Gerboise Blanc** - Chardonnay Barrel-aged Saison
+4. **Nevadan Amber Lager** - ネバダ州代表格
 
-1. **El Pato Loco** - 2025年World Beer Cup金賞受賞（Contemporary American-Style Lager）**最優先！**
-1. **Atomic Duck IPA** - シグネチャービール、地元愛され度No.1
-1. **Gerboise Blanc** - Chardonnay Barrel-aged Saison（複雑系好みに）
-1. **Nevadan Amber Lager** - ネバダ州代表格のAmber
-
-#### **特別体験:**
-
-- **フライト注文必須:** 受賞ビール中心の4-5種類選択
-- **無料ラバーダック🦆:** フライト注文で記念品ゲット
-- **Arts District Kitchen:** スクラッチメイドの本格食事
-- **醸造設備見学:** 32タップの圧倒的スケール確認
-- **地元との交流:** バーテンダーに「World Cup金賞の秘密」を聞く
-- **滞在時間:** 2.5時間（ここが最重要拠点、受賞ビール全制覇）
-
-### 🥇 **2:15 PM - CraftHaus Brewery Arts District（GABF金賞蔵のセカンド店舗）**
+### 🥇 **2:15 PM - CraftHaus Brewery Arts District**
 
 **📍 197 E California St, Ste 130, Las Vegas, NV 89104**
 
-#### **Henderson本店との違い:**
-
-- **ダウンタウン限定タップ:** 実験的小ロットビール
-- **Beer Bratwurst専門:** Beast Brat（野生イノシシ、エルク、和牛ミックス）
-- **よりカジュアル:** Arts District の地元アート文化に溶け込んだ雰囲気
-
-#### **必須体験:**
-
-- **Czech Plz** - 2024年GABF金賞ビールをここでも（比較テイスティング）
-- **限定Small batch IPAs** - Henderson本店にないArts District限定品
-- **Beast Brat + Czech Plz ペアリング** - 究極の組み合わせ
-- **滞在時間:** 1.5時間
-
-### 🏆 **4:00 PM - HUDL Brewing（実力派Head Brewer Joe Cuozzo の店）**
+### 🏆 **4:00 PM - HUDL Brewing（Joe Cuozzo の店）**
 
 **📍 1327 S Main St, #100**
 
-#### **なぜここが重要？**
-
-- **Head Brewer Joe Cuozzo**: GABF 4回 + World Beer Cup 3回受賞の**レジェンド**
-- **伝統的スタイルの完璧な実行**：“real beer styles with no adjuncts”哲学
-
-#### **絶対飲むべきビール:**
-
-1. **Vanilla Oak Cream Ale** - フラッグシップ、Cuozzoの代表作
-1. **Traditional styles** - Adjunct不使用の純粋スタイル
-1. **2024年World Beer Cup finalist beer** - 最終テーブル進出作品
-1. **季節限定Mosquito Bite Mexican Cerveza**（春季）
-
-#### **特徴:**
-
-- **26タップ:** 15-16種の自家製 + Nevada産Mead/Cider
-- **隣接Soulbelly BBQ:** ラスベガス最高峰BBQと完璧ペアリング
-- **Real beer philosophy:** 添加物なしの純粋醸造を体験
-- **滞在時間:** 1.5時間
-
-### 🍺 **5:45 PM - Hop Nuts Brewing（地元愛No.1）**
+### 🍺 **5:45 PM - Hop Nuts Brewing**
 
 **📍 1120 S Main St, #150**
 
-- **特徴:** 2015年創業、地元で育ったブルワーの故郷愛
-- **必須ビール:** The Nelsonator Single-hop IPA
-- **雰囲気:** 真のネイバーフッドブルワリー体験
-- **滞在時間:** 45分
-
-### 🎯 **6:45 PM - Nevada Brew Works（実験的革新系）**
+### 🎯 **6:45 PM - Nevada Brew Works**
 
 **📍 1327 S Main St, #160**
 
-- **特徴:** 革新的フレーバー、実験的アプローチ
-- **必須ビール:** Ariana Rye PA（Rye IPA）
-- **一日の締めくくり:** 伝統と革新の対比を体験
-- **滞在時間:** 1時間
+---
 
------
+## 💡 **Pro Tips（暑さ対策＋食事戦略強化版）** 🆕
 
-## 🏆 **WBC/GABF受賞ビール 完全攻略リスト**
+### 🔥 **暑さ対策戦略**
+1. **Uber移動必須**: バス計画は非現実的
+2. **水分補給**: 各ブルワリーで水+ビール両方注文
+3. **屋内滞在**: エアコン環境を最大活用
+4. **移動タイミング**: 最も暑い時間帯は屋内で過ごす
 
-### 🥇 **Must-Drink 受賞ビール（優先順位順）**
+### 🍽️ **食事戦略（失敗から学んだ必須事項）** 🆕
+1. **各ブルワリーで軽食必須**: 飛行機食だけでは危険
+2. **アルコール＋暑さ＋空腹**: 最悪の組み合わせ避ける
+3. **人口密集地での食事回避**: Tacos El Gordo失敗の教訓
+4. **体力温存**: エアコン完備レストラン選択
 
-1. **El Pato Loco** (Able Baker) - 2025年WBC金賞 🏆
-1. **Czech Plz** (CraftHaus) - 2024年GABF金賞 🏆
-1. **Atomic Duck IPA** (Able Baker) - 代表作
-1. **Vanilla Oak Cream Ale** (HUDL) - Head Brewer Cuozzo代表作
-1. **World Beer Cup finalist beer** (HUDL) - 2024年最終テーブル進出作
+### ⚡ **体力配分戦略（実証済み限界）** 🆕
+1. **現実的限界**: ブルワリー3店舗で体力ピーク
+2. **品質 vs 量**: 少数精鋭でじっくり楽しむ
+3. **疲労のサイン**: Beer Zombiesで体力切れ実感
+4. **翌日への影響**: 適度な休憩で持続力確保
 
-### 📸 **記念撮影 & お土産戦略**
+### 🏨 **宿泊戦略（実証済み）**
+- **Hampton Inn最適解**: $150, Hilton系, スマホ完結
+- **立地**: 755 Sierra Vista Dr（アクセス良好）
+- **コスパ**: NYC半額以下で同等サービス
 
-- **Able Baker**: ラバーダック🦆 + World Cup受賞記念グッズ
-- **CraftHaus**: GABF金賞受賞証明書と一緒に写真
-- **HUDL**: Joe Cuozzoと記念撮影（可能なら）
-- **Growler/Crowler**: 受賞ビールの持ち帰り
+### 🚗 **移動コスト（暑さ対策版）**
+- **土曜Uber予算**: $50-70（暑さ対策で増額）
+- **日曜Uber予算**: $30-40（Arts District内も一部Uber使用）
 
------
+---
 
-## 💡 **Pro Tips（受賞ブルワリー攻略版）**
+## 🔄 **体験フィードバック テンプレート**
 
-### 🎯 **受賞ビール戦略**
+### **✅ 土曜日実体験完了 - 全3店舗 + 食事失敗学習**
+```
+【CraftHaus Henderson】✅ 完了
+- 到着時間: 13:30頃（11:30着陸→ホテル経由→Uber移動）
+- Czech Plz (GABF金賞): 体験済み、期待通りの品質
+- SNS投稿: https://x.com/rihobeer2/status/1959342560029126724?s=46
 
-1. **フライト必須:** 各ブルワリーで受賞ビールを含むフライト注文
-1. **比較テイスティング:** 同スタイルの受賞ビールを複数ブルワリーで比較
-1. **ブルワーとの交流:** 受賞の秘密、醸造哲学を直接聞く
-1. **Untappd記録:** 受賞ビールのチェックイン必須
+【Atomic Liquors】✅ 新発見！
+- 到着時間: 15:23（CraftHausから移動）
+- 完全予想外の大当たり: 元プランになし
+- 特徴: ラスベガス最古フリースタイルバー＋最新クラフト文化
+- 🆕 厳選セレクション: タップ数10程度だが全国から厳選
+- 確認タップ: Mortalis、**Bale Breaker**等超高級 🆕修正
+- 🆕 仕入れ力の凄さ: ローカル中心のアメリカで全国展開、かっこいい
+- 評価: 本物のビール愛、この厳選眼は驚異的
+- SNS投稿: https://x.com/rihobeer2/status/1959384189574562271?s=61
 
-### 🚗 **効率的移動**
+【Beer Zombies】✅ 高品質確認
+- 到着時間: 17:00頃（体力切れ気味）
+- 品質: Brujos、Fidensレベルの超モダンヘイジー
+- 特徴: 甘さとクリーミーさが際立つ
+- 残念点: じっくり楽しめず体力切れ
+- SNS投稿: https://x.com/rihobeer2/status/1959404484016414962?s=61
+- Instagram: https://x.com/rihobeer2/status/1959404484016414962?s=61
 
-- **土曜日:** Henderson → Vegas 西側 → The Bend（Uber推奨）
-- **日曜日:** Arts District Brewery Row 徒歩巡り（1.6マイル圏内）
+【❌ Tacos El Gordo失敗】教訓
+- Google Maps: https://maps.app.goo.gl/WBVHAxtFxsQ12qCX6?g_st=ipc
+- 失敗要因: 暑さ＋人口密度＋体力切れ＋食事不足
+- Uber運転手推奨だったが断念
+- 学習: 各ブルワリーで軽食必須
 
-### 🍽️ **フードペアリング戦略**
+【体力・食事戦略学習】❌→✅
+- 致命的失敗: 飛行機内ソイジョイのみ→酔い回りすぎ
+- 現実的限界: ブルワリー3店舗で体力ピーク
+- 必須改善: 各店で軽食摂取戦略
+- 暑さ対策: 屋外・人口密集地での食事避ける
 
-- **CraftHaus**: Charcuterie板で受賞Czech Plzをペアリング
-- **Able Baker**: Arts District Kitchenで本格料理 + 受賞ビール
-- **HUDL**: Soulbelly BBQとCream Aleの完璧マッチ
+【土曜日総括】
+- 成功: 高品質ビール3店舗体験
+- 新発見: Atomic Liquors（完全予想外の当たり）
+- 学習: 食事戦略と体力配分の重要性
+- 改善要: 日曜日は食事優先プランに変更必要
+```
 
-### 📱 **情報収集**
+### **🔄 次回継続改善用プロンプト**
 
-- **Instagram**: 各ブルワリーで限定/seasonal受賞ビール情報
-- **受賞歴質問**: バーテンダーに「他の受賞ビールは？」と積極的に聞く
+```
+【ラスベガスビール旅行プラン v1.2 アップデート依頼】
 
------
+前回の実体験フィードバック：
+[新しい体験内容をここに入力]
 
-## 🎉 **なぜこのプランが最強か（受賞ブルワリー版）**
+【v1.1での確認済み事項】
+- 11:30着陸→13:30 CraftHaus到着（移動時間2時間）
+- ラスベガス暑さ予想以上→Uber移動必須
+- Hampton Inn最適解（$150, スマホチェックイン）
+- CraftHaus Czech Plz金賞ビール体験済み
 
-1. **世界レベル品質保証**: WBC/GABF受賞 = 国際的品質認定済み
-1. **MonkishファンのためのIPA重視**: 高品質IPA中心（Atomic Duck, Tropical Forrest等）
-1. **醸造哲学の多様性**:
-- Able Baker（革新 + 伝統）
-- CraftHaus（品質一筋）
-- HUDL（ピュア伝統主義）
-1. **地元No.1 vs 世界No.1**: 地元愛されブルワリー + 国際受賞蔵の両方体験
-1. **完璧なプログレッション**: 土曜日（発見）→ 日曜日（制覇）
+【アップデート指示】
+実体験の評価・発見を元にプランを改善し、v1.2として出力してください。
+特に重視：
+1. 時間・移動の現実性調整
+2. 新発見ビール・ブルワリーの追加
+3. 失敗・低評価要素の除去
+4. コスト実績反映
+```
 
-君の友人は間違いなく、MonkishやNorth Parkと同等以上の品質をラスベガスで発見するはず！特に**Able Baker の El Pato Loco（2025年WBC金賞）**と **CraftHaus の Czech Plz（2024年GABF金賞）**は絶対に感動する！
+---
 
-**#DoTheDuck #WorldCupChampion** 🦆🏆🍺
+## 📊 **Version履歴**
+- **v1.0**: 初期プラン（WBC/GABF調査ベース）
+- **v1.1**: 土曜日実体験反映
+  - 暑さ対策最重要化
+  - Hampton Inn実証
+  - CraftHaus確認 (13:30)
+  - Atomic Liquors新発見 (15:23)  
+  - Beer Zombies品質確認 (17:00)
+  - 食事戦略の重要性学習
+  - 体力配分限界確認（3店舗）
+- **v1.2**: [日曜日体験後アップデート予定]
+
+**🔄 循環改善により、常に最新・最適なビール旅行プランを維持**
