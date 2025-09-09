@@ -1,287 +1,551 @@
-# シカゴGABF受賞ブルワリー巡り旅程 🏆
+# シカゴ・Toppling Goliath聖地巡礼旅程【カジュアル版・営業時間確認済み】🚗🚊🍺
 
 **期間:** 2025年11月27日（木）- 30日（日）  
-**感謝祭ウィークエンド・受賞ブルワリー特別版**
+**メイン目的地:** Toppling Goliath Brewing Co. (Decorah, Iowa) 🌟  
+**コンセプト:** 気軽に立ち寄れるカジュアルブルワリー中心 + 世界最高峰への聖地巡礼
 
-**コンセプト:** GABF・WBC・WBA受賞ブルワリーを優先的に回る
+**予算:** 1人あたり$800-1,000（交通費・宿泊費・飲食費込み）
 
------
+### **🏆 道中の受賞ブルワリー（追加済み）**
+
+#### **PIVO Brewery** 🥇 3冠達成GABF受賞ブルワリー
+
+- **住所:** 101 Huber Dr, Calmar, IA 52132
+- **営業時間:** 水-土 11:00-22:00、日 11:00-18:00
+- **アクセス:** シカゴ→Decorahルートの途中、US-52沿い
+- **立地メリット:** Decorahから南へ9マイル（15分）
+- **受賞歴:** 
+  - **Decorah Nordic Gruit** 🥇 GABF Gold・WBC Gold・US Open Gold
+  - **Old Balltown BBBASCDCBMS** 🏆 GABF受賞バレルエイジド
+- **特徴:** 40タップ、アートスタジオ併設、イベントセンター400席
+- **雰囲気:** ファミリーフレンドリー、犬OK、サイクリストフレンドリー
+- **おすすめ:** GABF受賞ビール必飲、Alpha Double IPA、各種実験醸造
+- **価格帯:** パイント$5-7、フライト$12-15、食事$8-15
+- **特記事項:** 金曜日道中立ち寄りで聖地巡礼がさらに充実
+
+---
+
+## 🚗 **レンタカー戦略【28-29日のみ】**
+
+### **📊 コスパ重視レンタカープラン（2日間）**
+
+#### **推奨: Budget または Enterprise Compact Car**
+- **ピックアップ:** 11/28（金）08:00 - ダウンタウン店
+- **返却:** 11/29（土）18:00 - ダウンタウン店
+- **車種:** Compact Car（Nissan Sentra等）
+- **料金:** $40-50/日 × 2日 = $80-100
+- **ガソリン:** $60-80
+- **駐車場:** 各ブルワリー無料
+
+---
 
 ## ✈️ **11月27日（木）到着日**
 
-**14:41シカゴ到着 → ホテルチェックイン**
+**14:41シカゴ到着 → River North地区ホテルチェックイン**
 
-### 夕方（16:00-20:00）
+### **🏨 予算重視宿泊: River North**
+- **Best Western River North**（$120-150/泊）または
+- **Hampton Inn Downtown**（$140-170/泊）
+- メリット: CTA各線アクセス良好、ブルワリー徒歩圏内
 
-**テーマ：ダウンタウン受賞ブルワリー巡り**
+### 夕方（16:00-20:30）
 
-#### 1. **Moody Tongue Brewing** ⭐🏆 GABF 2024 Bronze受賞
+**テーマ：シカゴ地元系カジュアルブルワリー【営業時間確認済み】**
 
-- **住所：** 2136 S Peoria St, Chicago
-- **受賞歴：** GABF 2024 Bronze - Cassis (Fruited Wood- and Barrel-Aged Sour Beer)
-- **特徴：** 世界唯一のミシュラン星付きブルワリー
-- **おすすめ：** 受賞ビールCassis、Chef-driven beers
-- **滞在時間：** 2-2.5時間（感謝祭特別営業確認必須）
+#### 1. **Goose Island Taproom** 🌟 シカゴの代表格（製造ブルワリー併設）
 
-#### 2. **Piece Brewery** 🏆 GABF 2024 Silver受賞
+- **住所:** 1800 W Fulton St, Chicago, IL 60612
+- **営業時間:** 木曜 12:00-20:00 ✅ **営業中**
+- **アクセス:** ホテルからUber 12分、$10-15
+- **雰囲気:** 工業系タップルーム、製造現場見学可能
+- **価格帯:** パイント$6-8
+- **特徴:** ここでしか飲めないR&D試作ビール
+- **おすすめ:** 312 Urban Wheat、IPA、限定試作ビール
+- **食事:** スナック類（プレッツェル、チップス$5-8）
+- **駐車場:** 無料、専用駐車場あり
+- **滞在時間:** 2時間（16:00-18:00）
 
-- **住所：** 1927 W North Ave, Chicago
-- **受賞歴：** GABF 2024 Silver - Door Code (German-Style Pilsener)
-- **特徴：** シカゴの老舗、ピザとビールのペアリング
-- **おすすめ：** 受賞ビールDoor Code、Signature Pizza
-- **滞在時間：** 1.5時間
+#### 2. **Lagunitas Brewing Chicago** 🍺 カリフォルニア発の人気店
 
-**夜：** ホテル近辺で軽い感謝祭ディナー
+- **住所:** 2607 W 17th St, Chicago
+- **営業時間:** 木曜 15:00-22:00 ✅ **営業中**
+- **アクセス:** Goose Island TaproomからUber 15分、$10-15
+- **雰囲気:** 広々としたタップルーム、ライブ音楽
+- **価格帯:** パイント$5-7
+- **おすすめ:** IPA、Little Sumpin' Sumpin'、Hop Stoopid
+- **食事:** フードトラック（$8-15）
+- **滞在時間:** 1.5時間（18:30-20:00）
 
------
+**夜:** Near North地区でカジュアルディナー、CTA Red Lineでホテル帰還
+
+---
 
 ## 🚗 **11月28日（金）**
 
-**レンタカー受取 → Three Floyds訪問 → インディアナ宿泊**
+**レンタカー受取 → Toppling Goliath聖地巡礼 → Decorah宿泊**
 
-### 午前（09:00-12:00）
+### **🌄 宿泊地: Decorah, Iowa**
+- **Country Inn & Suites Decorah**（$90-120/泊）
+- 特徴: 無料朝食、無料駐車場、プール付き
 
-- **09:00:** レンタカー受取（シカゴ・オヘア空港またはダウンタウン）
-- **10:30:** シカゴ → Munster, Indiana（車で約1時間）
+### 早朝（07:00-08:30）
+- **07:00:** ホテルチェックアウト
+- **07:30:** レンタカー受取（Budget/Enterprise）
+- **08:30:** シカゴ出発 → Decorah, Iowa
 
-### 午後（12:00-18:00）
+### **🛣️ 運転ルート詳細**
+**シカゴ → Decorah (278マイル、5時間)**
+- **Route:** I-90 W → I-94 W → US-52 N → Decorah
+- **中間休憩:** Monroe, Wisconsin（地元カフェでコーヒー休憩）
+- **到着予定:** 13:30
 
-#### **Three Floyds Brewing** 🌟🏆 世界最高峰ブルワリー
+### 午後（13:30-21:00）
 
-- **住所：** 9750 Indiana Pkwy, Munster, IN 46321
-- **受賞歴：** GABF・WBC多数受賞、RateBeer世界1位（複数年）
-- **営業：** 火-土 12:00-19:00、日12:00-17:00
-- **特徴：** Dark Lord Day開催地、Zombie Dust、Alpha King、Gumballhead
-- **体験内容：**
-  - Dark Lord（在庫があれば）、Alpha King、Dreadnaught試飲
-  - ブルワリーツアー（要予約推奨）
-  - “It’s Not Normal”グッズ購入
-  - 限定リリース確認
-- **滞在時間：** 4-5時間（聖地巡礼として十分な時間を確保）
+#### **Toppling Goliath Brewing Co.** 🌟🏆 世界最高峰IPA醸造所
 
-### 夜（18:00-）
+- **営業時間:** 金曜 11:00-22:00 ✅ **営業中**
+- **駐車場:** 無料、広々とした専用駐車場
+- **雰囲気:** カジュアル、フレンドリー、地元密着型
 
-**インディアナ州Munster近辺宿泊**
+#### **🍺 Toppling Goliath 完全攻略プラン（7.5時間）**
 
-- **ホテル推奨：** Hampton Inn & Suites Chicago Southland-Munster
-- **ディナー：** 現地レストランまたはThree Floyds併設レストラン
+**Phase 1: 伝説のIPAシリーズ（13:30-16:30）**
+- **Pseudo Sue Pale Ale** 🌟 世界最高峰ペールエール（$6-7/パイント）
+- **King Sue IIPA** 🌟 Pseudo Sueの進化形（$7-8/パイント）
+- **Golden Nugget IPA** 🌟 バランス抜群（$6-7/パイント）
+- **Mornin' Dew IPA** 🌟 朝露のような爽やかさ（$6-7/パイント）
+- **Sosus Pale Ale** 🌟 複層的ホップ（$6-7/パイント）
 
------
+**Phase 2: スタウト・特別醸造（16:30-19:00）**
+- **Kentucky Brunch Brand Stout** 🥃 世界最高評価（運が良ければ）
+- **Mornin' Delight** ☕ コーヒースタウト（$8-10/パイント）
+- **SR-71** ✈️ 限定インペリアルスタウト
+- **Dorothy's New World Lager** 🌎 ラガー（$5-6/パイント）
+
+**Phase 3: お土産購入＆リラックス（19:00-21:00）**
+- **22oz ボトル購入**（Pseudo Sue $12、King Sue $15等）
+- **TGロゴグッズ**（Tシャツ$25、グラス$12等）
+- **4パック缶**（持ち帰り用、$16-20）
+
+### 夜（21:00-）
+**Decorah市内** - カジュアルなローカルバー巡り（Impact Coffee等）
+
+---
 
 ## 🏆 **11月29日（土）**
 
-**テーマ：GABF 2024受賞ブルワリー制覇の日**
-
-### 午前（10:00-14:00）
-
-#### 1. **Werk Force Brewing Co.** 🏆🏆 GABF 2024 複数受賞
-
-- **住所：** 1419 W 35th St, Chicago（Three Floydsから車で45分）
-- **受賞歴：**
-  - GABF 2024 Silver - Humongous Sleepy Chungus Bear (Wood- and Barrel-Aged Strong Stout)
-  - GABF 2024 Silver - Stupid Sticky Fingers (Collaboration Competition)
-- **特徴：** シカゴの新星、バレルエイジング専門
-- **おすすめ：** 両受賞ビール、他のバレルエイジドシリーズ
-- **滞在時間：** 2時間
-
-#### 2. **Greenstar Brewing** 🏆 GABF 2024 Gold受賞
-
-- **住所：** 935 W Chicago Ave, Chicago
-- **受賞歴：** GABF 2024 Gold - Bateman Bier (American Amber Lager)
-- **特徴：** シカゴの隠れた名店、ラガー専門
-- **おすすめ：** 金賞受賞Bateman Bier、クラシックラガー
-- **滞在時間：** 1.5時間
-
-### 午後（14:30-19:00）
-
-#### 3. **Hopewell Brewing Co.** 🏆 GABF 2024 Bronze受賞
-
-- **住所：** 2760 N Milwaukee Ave, Chicago
-- **受賞歴：** GABF 2024 Bronze - Tankbeer (Kellerbier or Zwickelbier)
-- **特徴：** ドイツスタイル専門、未濾過ラガー
-- **おすすめ：** 受賞ビールTankbeer、ケラービア
-- **滞在時間：** 1.5時間
-
-#### 4. **Cruz Blanca Brewery** 🏆 GABF 2024 Bronze受賞
-
-- **住所：** 904 W Randolph St, Chicago
-- **受賞歴：** GABF 2024 Bronze - Wild Honey (Specialty Saison)
-- **特徴：** Rick Bayless監修、メキシカン・インスパイアード
-- **おすすめ：** 受賞ビールWild Honey、メキシカンフュージョンフード
-- **滞在時間：** 2時間
-
-#### 5. **Double Clutch Brewing Co.** 🏆 GABF 2024 Silver受賞
-
-- **住所：** 2020 Dempster St, Evanston, IL
-- **受賞歴：** GABF 2024 Silver - Altbier (German-Style Altbier)
-- **特徴：** シカゴ北郊外、ドイツスタイル専門
-- **おすすめ：** 受賞ビールAltbier、ドイツスタイル各種
-- **滞在時間：** 1.5時間
-
-**夜：** シカゴ市内で受賞ブルワリー巡りを祝うディナー
-
------
-
-## 🌟 **11月30日（日）最終日**
-
-**テーマ：レジェンド受賞ブルワリー & お土産購入**
-
-### 午前（10:00-13:00）
-
-#### 1. **Revolution Brewing** 🏆 イリノイ州最大独立系・多数受賞歴
-
-- **住所：** 2323 N Milwaukee Ave, Chicago
-- **受賞歴：** GABF・WBC多数メダル（Anti-Hero IPA等）
-- **特徴：** イリノイ州最大独立系ブルワリー、政治的テーマ
-- **体験内容：**
-  - ブルワリーツアー（要予約）
-  - Anti-Hero IPA、Eugene Porter試飲
-  - 限定バレルエイジドビール
-- **滞在時間：** 2.5時間
-
-#### 2. **Pollyanna Brewing Co.** 🏆 GABF 2024 Bronze受賞
-
-- **住所：** 431 Talcott Rd, Lemont, IL（車で30分）
-- **受賞歴：** GABF 2024 Bronze - Lexical Gap (American-Style India Pale Ale)
-- **特徴：** シカゴ郊外の受賞ブルワリー、IPA専門
-- **おすすめ：** 受賞ビールLexical Gap、最新IPA
-- **滞在時間：** 1.5時間
-
-### 午後（13:30-15:30）
-
-#### **お土産購入タイム**
-
-**The Beer Temple**（お土産の聖地）
-
-- **住所：** 2431 N Clybourn Ave, Chicago
-- **特徴：** シカゴ最高のクラフトビールショップ
-- **購入推奨：**
-  - Three Floyds限定ボトル（Alpha King、Zombie Dust缶等）
-  - GABF受賞ブルワリーの限定品
-  - シカゴ限定グッズ
-  - レアバレルエイジドビール
-
-### 最終（15:30-出発）
-
-- **15:30:** レンタカー返却（オヘア空港）
-- **16:40:** シカゴ発
-
------
-
-## 🏆 **受賞ブルワリー詳細情報**
-
-### **GABF 2024 シカゴエリア受賞一覧**
-
-|ブルワリー                |受賞     |ビール名                         |カテゴリー                 |
-|---------------------|-------|-----------------------------|----------------------|
-|**Moody Tongue**     |🥉Bronze|Cassis                       |Fruited Wood-Aged Sour|
-|**Piece Brewery**    |🥈Silver|Door Code                    |German-Style Pilsener |
-|**Greenstar Brewing**|🥇Gold  |Bateman Bier                 |American Amber Lager  |
-|**Hopewell Brewing** |🥉Bronze|Tankbeer                     |Kellerbier/Zwickelbier|
-|**Cruz Blanca**      |🥉Bronze|Wild Honey                   |Specialty Saison      |
-|**Werk Force**       |🥈Silver|Humongous Sleepy Chungus Bear|Wood-Aged Strong Stout|
-|**Werk Force**       |🥈Silver|Stupid Sticky Fingers        |Collaboration         |
-|**Pollyanna**        |🥉Bronze|Lexical Gap                  |American IPA          |
-|**Double Clutch**    |🥈Silver|Altbier                      |German-Style Altbier  |
-
-### **近隣レジェンド受賞ブルワリー**
-
-#### **Three Floyds Brewing (Indiana)**
-
-- **歴史的受賞歴：** GABF・WBC多数、RateBeer世界1位（複数年）
-- **代表ビール：** Dark Lord、Alpha King、Zombie Dust、Dreadnaught
-- **特徴：** 世界中のビールファンが巡礼する聖地
-
-#### **Bell’s Brewery (Michigan)**
-
-- **歴史的受賞歴：** GABF・WBC複数年受賞
-- **代表ビール：** Two Hearted IPA、Oberon、Porter
-- **特徴：** ミシガン州最古のブルワリーの一つ
-
-#### **New Glarus Brewing (Wisconsin)**
-
-- **歴史的受賞歴：** GABF・WBC複数年受賞
-- **代表ビール：** Spotted Cow、Wisconsin Belgian Red
-- **特徴：** Wisconsin州内限定販売、カルト的人気
-
------
-
-## 📋 **重要な実用情報**
-
-### 🚗 **レンタカー詳細**
-
-- **受取：** 11/28（金）09:00 - シカゴ・オヘア空港またはダウンタウン
-- **返却：** 11/30（日）15:30 - シカゴ・オヘア空港
-- **運転距離：** 約300マイル（480km）
-- **Three Floydsまで：** シカゴから約1時間（I-94 East使用）
-
-### 🏨 **宿泊推奨**
-
-**11/27 シカゴ市内:**
-
-- **The Chicago Getaway Hostel**（West Loop）
-- **Club Quarters Hotel Central Loop**（ダウンタウン）
-
-**11/28 インディアナ州:**
-
-- **Hampton Inn & Suites Chicago Southland-Munster**
-- **Fairfield Inn & Suites Hammond**（Three Floydsから10分）
-
-**11/29 シカゴ市内:**
-
-- **前泊ホテルに戻る**
-
-### 🍺 **受賞ビール試飲のコツ**
-
-- **事前確認：** 受賞ビールの在庫状況を電話確認
-- **フライト注文：** 受賞ビール中心のフライトを依頼
-- **質問準備：** 受賞ビールの製造背景、特徴を質問
-- **写真撮影：** 受賞証明書やメダルと一緒に撮影
-
-### 🦃 **感謝祭営業注意**
-
-- **11/27（感謝祭）：** 多くが短縮営業または休業
-- **11/28（ブラックフライデー）：** 通常営業再開
-- **事前確認必須：** 各ブルワリーのSNSで最新営業時間確認
-
-### 📦 **お土産戦略**
-
-- **Three Floyds：** Dark Lord（入手困難）、Alpha King、グッズ
-- **受賞ブルワリー：** 受賞ビールの限定販売品
-- **The Beer Temple：** シカゴでしか買えない限定品
-- **輸送：** クーラーボックスまたは専用ビール輸送バッグ
-
-### 💰 **予算目安**
-
-- **レンタカー：** $200-300（3日間）
-- **ガソリン：** $50-70
-- **宿泊：** $300-500（2泊）
-- **ビール代：** $200-400（試飲・購入）
-- **食事：** $200-350（3日間）
-- **総額：** $950-1,620
-
------
-
-## 🎯 **旅程成功のポイント**
-
-### **受賞ビール優先戦略**
-
-1. **事前リサーチ：** 各ブルワリーの受賞ビール在庫確認
-1. **早めの訪問：** 受賞ビールは売り切れやすい
-1. **ブルワー との対話：** 受賞ビールの製造秘話を聞く
-1. **記録写真：** 受賞証明書・メダルと記念撮影
-
-### **Three Floyds攻略法**
-
-1. **平日訪問：** 金曜日は比較的空いている
-1. **開店直後：** 12:00開店と同時に入店
-1. **限定品確認：** Dark Lord在庫、限定リリース確認
-1. **グッズ購入：** ここでしか買えないアイテム多数
-
-### **感謝祭ウィークエンド対策**
-
-1. **営業時間確認：** 当日朝にSNSで最終確認
-1. **代替案準備：** 休業時の代替ブルワリーリスト
-1. **予約推奨：** ツアーや大人数の場合は事前予約
-
-**🍻 World-Class Craft Beer Experience Awaits! 受賞ブルワリーでの最高の体験を！**
+**テーマ：Three Floyds聖地巡礼 + 地元系ブルワリー追加**
+
+### 早朝〜昼（08:00-14:30）
+- **08:00:** Decorah出発 → Munster, Indiana
+- **中間立ち寄り:** **Ale Asylum** (Madison, Wisconsin)
+  - **住所:** 2002 Pankratz St, Madison, WI
+  - **営業時間:** 土曜 11:00-22:00 ✅ **営業中**
+  - **特徴:** ウィスコンシン州の人気ブルワリー
+  - **おすすめ:** Hopalicious IPA、Madness IPA
+  - **滞在:** 1時間（11:00-12:00）
+- **14:30:** Three Floyds到着
+
+### 午後（14:30-17:00）
+
+#### **Three Floyds Brewing** 🌟🏆 "It's Not Normal"
+
+- **住所:** 9750 Indiana Pkwy, Munster, IN 46321
+- **営業時間:** 土曜 12:00-19:00 ✅ **営業中**
+- **駐車場:** 無料、専用駐車場
+- **雰囲気:** ロック・メタル系、カルト的人気
+
+#### **🍺 Three Floyds 必飲リスト**
+- **Alpha King** 👑 アメリカンペールエール（$6-7/パイント）
+- **Zombie Dust** 🧟 全米最高評価ペールエール（$7-8/パイント）
+- **Gumballhead** 🐱 アメリカンウィート（$5-6/パイント）
+- **Robert the Bruce** ⚔️ スコッティッシュエール（$6-7/パイント）
+- **Dreadnaught** ⚓ インペリアルIPA（$7-8/パイント）
+- **Dark Lord** 🖤 ロシアンインペリアルスタウト（入手困難）
+
+**お土産購入:**
+- **"It's Not Normal"グッズ**（Tシャツ$20-25）
+- **4パック缶**（Alpha King、Zombie Dust等、$14-18）
+- **22oz ボトル**（限定品があれば）
+
+### 夕方（17:00-19:00）
+
+#### **レンタカー返却 → Logan Square移住**
+- **17:00:** Three Floyds → シカゴ（45分運転）
+- **18:00:** レンタカー返却
+- **18:30:** CTA Blue Line → Logan Square（20分）
+
+### **🏨 土曜宿泊地: Logan Square**
+- **Best Western Chicago O'Hare**（$100-130/泊）または
+- **Budget Airbnb Logan Square**（$80-120/泊）
+
+### 夜（19:00-23:30）**世界トップ10ビアバー体験**
+
+#### **Revolution Brewing Logan Square** 🏆 イリノイ州最大独立系
+
+- **住所:** 2323 N Milwaukee Ave, Chicago
+- **営業時間:** 土曜 11:00-24:00 ✅ **営業中**
+- **アクセス:** Logan Square駅から徒歩8分
+- **雰囲気:** 広々、家族連れOK、パティオ有り
+- **価格帯:** パイント$5-7
+- **おすすめ:** Anti-Hero IPA、Eugene Porter、Fist City
+- **食事:** パブフード（$10-16）
+- **滞在時間:** 2時間（19:00-21:00）
+
+#### **Hopleaf Bar** 🌟🏆 **世界トップ10ビアバー（必訪）**
+
+- **住所:** 5148 N Clark St, Chicago, IL 60640
+- **営業時間:** 土曜 12:00-24:00 ✅ **営業中**
+- **アクセス:** Revolution → Blue Line Logan Square → Red Line転乗 → Berwyn駅徒歩3分（45分）
+- **特徴:** Craft Beer & Brewing誌「世界最高ビアバー2023 トップ10」選出
+- **雰囲気:** ベルギービール文化、大人のみ入場、静寂な空間
+- **セレクション:** 68タップライン、世界各国の希少ビール
+- **価格帯:** パイント$6-12
+- **おすすめ:** ベルギービール各種、ムール貝&フリッツ、世界的希少ビール
+- **予約:** Tock経由で予約推奨（当日席も多数あり）
+- **滞在時間:** 2.5時間（21:45-24:00）
+- **特記事項:** 世界最高峰のビア体験、シカゴ滞在のハイライト
+
+---
+
+## 🚊 **11月30日（日）最終日**
+
+**テーマ：CTA Brown Line"Malt Row"カジュアルブルワリー巡り【営業時間確認済み】**
+
+### **🚊 CTA Brown Line戦略**
+- **1日乗車券:** $20（バス+電車乗り放題）
+- **メインルート:** Logan Square → Irving Park（Malt Row）→ Downtown
+
+### 朝〜午後（10:00-16:00）
+
+#### **Malt Row地区カジュアル制覇【CTA Brown Line Irving Park駅】**
+
+**10:00-11:30 Half Acre Beer Company Balmoral** 🌟
+
+- **住所:** 2050 W Balmoral Ave, Chicago
+- **営業時間:** 日曜 11:00-19:00 ✅ **営業中**
+- **アクセス:** Irving Park駅から徒歩12分
+- **雰囲気:** 工業系、ビアガーデン有り、犬OK
+- **価格帯:** パイント$5-7
+- **おすすめ:** Daisy Cutter Pale Ale、Bodem、Tuna
+- **特徴:** シカゴで最も有名なペールエール
+- **滞在時間:** 1.5時間
+
+**11:45-12:30 Spiteful Brewing** 🍺
+
+- **住所:** 2021 W Balmoral Ave, Chicago（Half Acreの隣）
+- **営業時間:** 日曜 12:00-20:00 ✅ **営業中**
+- **アクセス:** Half Acreから徒歩1分
+- **雰囲気:** ダーツ、長い木製バー、工業的
+- **価格帯:** パイント$5-6
+- **おすすめ:** Working For the Weekend DIPA、God Damn Pigeon Porter
+- **特徴:** ローカルハングアウト
+- **滞在時間:** 45分
+
+**12:45-14:15 Dovetail Brewery** 🏆
+
+- **住所:** 1800 W Belle Plaine Ave, Chicago
+- **営業時間:** 日曜 12:00-20:00 ✅ **営業中**
+- **アクセス:** Irving Park駅から徒歩5分
+- **雰囲気:** ドイツ風、木製インテリア、静か
+- **価格帯:** パイント$5-6
+- **専門:** ドイツスタイルラガー
+- **おすすめ:** Czech Pilsner、Vienna Lager、Kolsch
+- **特徴:** 伝統的醸造法、落ち着いた雰囲気、月1回ツアー開催
+- **滞在時間:** 1.5時間
+
+**14:30-15:15 Begyle Brewing** 🍺
+
+- **住所:** 1800 W Cuyler Ave, Chicago（Dovetailの向かい）
+- **営業時間:** 日曜 12:00-20:00 ✅ **営業中**
+- **アクセス:** Dovetailから徒歩1分
+- **雰囲気:** 地域密着型、パティオ有り、家族的
+- **価格帯:** パイント$4-6
+- **特徴:** CSB（Community Supported Brewery）
+- **おすすめ:** IPA各種、Saison、季節限定
+- **滞在時間:** 45分
+
+### 最終お土産（15:30-16:15）
+
+#### **Binny's Beverage Depot Lincoln Park** 🛒
+
+- **住所:** 1720 N Marcey St, Chicago
+- **営業時間:** 日曜 11:00-18:00 ✅ **営業中**
+- **アクセス:** Brown Line Armitage駅から徒歩5分
+- **特徴:** シカゴ最大のクラフトビール販売店
+- **価格:** 市内最安値
+
+**購入推奨リスト:**
+- **Half Acre Daisy Cutter 4パック**（$12-15）
+- **Revolution Anti-Hero 6パック**（$10-12）
+- **Toppling Goliath缶**（入手できれば）
+- **Three Floyds缶**（Alpha King等、$12-15）
+- **Goose Island 312 6パック**（お土産用、$8-10）
+
+### 出発（16:15-）
+- **16:15:** Binny's → CTA Blue Line
+- **16:45:** オヘア空港到着
+- **18:40:** シカゴ発
+
+---
+
+## 💰 **総予算概算（1人あたり）**
+
+### **🚗 交通費**
+- **レンタカー2日間:** $80-100
+- **ガソリン:** $60-80
+- **CTA 3日券:** $35
+- **Uber（木曜のみ）:** $40-60
+- **小計:** $215-275
+
+### **🏨 宿泊費（3泊）**
+- **シカゴ2泊:** $240-320（$120-160×2）
+- **Decorah 1泊:** $90-120
+- **小計:** $330-440
+
+### **🍺 飲食費**
+- **ブルワリー代:** $180-250（パイント×30杯程度）
+- **食事代:** $120-180（カジュアル食事×4回）
+- **お土産ビール:** $80-120
+- **小計:** $380-550
+
+### **📊 総計**
+**$925-1,265/人（3泊4日）**
+
+---
+
+## ✅ **営業時間確認済みリスト（11月27-30日）**
+
+### **木曜日（11/27）**
+- ✅ **Goose Island Taproom:** 12:00-20:00（営業中）
+- ✅ **Lagunitas Chicago:** 15:00-22:00（営業中）
+
+### **金曜日（11/28）**
+- ✅ **Toppling Goliath:** 11:00-22:00（営業中）
+
+### **土曜日（11/29）**
+- ✅ **Ale Asylum (Madison):** 11:00-22:00（営業中）
+- ✅ **Three Floyds:** 12:00-19:00（営業中）
+- ✅ **Revolution Logan Square:** 11:00-24:00（営業中）
+
+### **日曜日（11/30）**
+- ✅ **Half Acre Balmoral:** 11:00-19:00（営業中）
+- ✅ **Spiteful Brewing:** 12:00-20:00（営業中）
+- ✅ **Dovetail Brewery:** 12:00-20:00（営業中）
+- ✅ **Begyle Brewing:** 12:00-20:00（営業中）
+- ✅ **Binny's Lincoln Park:** 11:00-18:00（営業中）
+
+---
+
+## 🎯 **更新版の特徴**
+
+### **✅ 正確な営業情報**
+- **閉店店舗除外:** Goose Island Brewhouseは除外
+- **現在営業店舗:** Goose Island Taproomに変更（製造ブルワリー併設でより本格的）
+- **営業時間確認済み:** すべてのブルワリーで営業確認済み
+
+### **🍺 ブルワリーグレードアップ**
+- **Goose Island Taproom:** R&D試作ビール、製造現場見学可能
+- **Half Acre Balmoral:** シカゴ最有名ペールエール「Daisy Cutter」本拠地
+- **Dovetail:** ドイツ伝統醸造法、月1回特別ツアー
+
+### **🚊 移動の最適化**
+- **Malt Row:** 4ブルワリーが徒歩10分圏内で効率的
+- **CTA活用:** 土日は電車&徒歩中心で安全・経済的
+- **無料駐車場:** 金土のレンタカー利用時はすべて無料
+
+**🍻 正確な営業情報に基づく世界最高峰ブルワリー聖地巡礼 + シカゴ地元カジュアル制覇の完璧な旅程です！**
+
+---
+
+# 📚 **付録：他に行くべきブルワリー＆ビアバー**
+
+## 🌟 **世界的に有名なビアバー**
+
+### **Hopleaf Bar** 🏆 世界トップ10ビアバー
+
+- **住所:** 5148 N Clark St, Chicago, IL 60640
+- **営業時間:** 日-木 12:00-23:00、金-土 12:00-24:00
+- **アクセス:** Red Line Berwyn駅から徒歩3分
+- **特徴:** 68タップライン、世界最高峰のビアセレクション
+- **雰囲気:** ベルギービール文化インスパイア、大人向け静かな空間
+- **価格帯:** パイント$6-12
+- **おすすめ:** 世界各国の珍しいビール、ムール貝&フリッツ
+- **特記事項:** 予約可能（Tock）、大人のみ入場可
+- **評価:** Craft Beer & Brewing誌「世界最高ビアバー2023 トップ10」
+
+### **The Map Room** 🗺️ 伝説的近所のビアバー
+
+- **住所:** 1949 N Hoyne Ave, Chicago, IL 60647
+- **営業時間:** 月-金 18:30-02:00、土 19:30-03:00、日 23:00-02:00
+- **アクセス:** Blue Line Damen駅から徒歩8分
+- **特徴:** 現金のみ、格安価格、パブスタイル
+- **雰囲気:** イギリス系パブ、地元常連客中心
+- **価格帯:** パイント$3-5（シカゴ最安値級）
+
+---
+
+## 🧪 **革新的・実験的ブルワリー**
+
+### **Off Color Brewing - The Mousetrap** 🐭 革新の極地
+
+- **住所:** 1460 N Kingsbury St, Chicago, IL 60642
+- **営業時間:** 火-木 16:00-22:00、金 15:00-24:00、土 12:00-24:00、日 12:00-20:00
+- **アクセス:** North/Clybourn駅から徒歩10分
+- **特徴:** 創業以来一度もIPAを製造していない珍しいブルワリー
+- **専門:** 古典スタイル、野生酵母発酵、バレルエイジング
+- **おすすめ:** Troublesome、DinoS'mores（年1回限定）
+- **価格帯:** パイント$6-9
+- **雰囲気:** 工業系、実験的、ビールギーク向け
+
+### **Forbidden Root** 🌿 全米#1ブルワパブ（2022年）
+
+**West Town本店**
+- **住所:** 1746 W Chicago Ave, Chicago, IL 60622
+- **営業時間:** 毎日 11:00-22:00
+- **アクセス:** Blue Line Chicago駅から徒歩7分
+- **特徴:** シカゴ初のボタニカルブルワリー
+- **専門:** ハーブ、スパイス、花、根を使った自然派ビール
+- **おすすめ:** Panda Party Dark Lager、季節ボタニカルビール
+- **価格帯:** パイント$6-8、食事$15-25
+- **雰囲気:** モダン、ウッディ、ガストロパブ
+
+**Ravenswood支店（Cultivate）**
+- **住所:** 4710 N Ravenswood Ave, Chicago, IL 60640
+- **営業時間:** 月-木 16:00-21:30、金 15:00-22:00、土 12:00-22:00、日 12:00-20:30
+- **特徴:** Malt Row地区、隠れ家的タップルーム併設
+
+### **Maplewood Brewery & Distillery** 🥃 ビール＆蒸留所
+
+- **住所:** 2717 N Maplewood Ave, Chicago, IL 60647
+- **営業時間:** 火-水 15:00-22:00、木 15:00-24:00、金-土 11:00-24:00、日 11:00-22:00、月曜休業
+- **アクセ:** Blue Line California駅から徒歩12分
+- **特徴:** シカゴ初のブルワリー＆蒸留所併設
+- **おすすめ:** 自家製スピリッツのカクテル、6年熟成ライウイスキー
+- **価格帯:** パイント$5-7、カクテル$10-14
+- **雰囲気:** 近所のバー、リラックス、パグのロゴ
+
+---
+
+## 🍺 **専門・老舗ブルワリー**
+
+### **Metropolitan Brewing** 🏭 ラガー専門の老舗
+
+- **住所:** 3057 N Rockwell St, Chicago, IL 60618
+- **営業時間:** 木-金 17:00-22:00、土 14:00-22:00、日 14:00-20:00
+- **アクセ:** Brown Line Rockwell駅から徒歩8分
+- **特徴:** 2009年創業、ラガー・ピルスナー専門
+- **おすすめ:** Krankshaft Kolsch、Dynamo Copper Lager
+- **価格帯:** パイント$5-6
+- **雰囲気:** 工業系、シンプル、ラガー愛好家向け
+
+### **Pipeworks Brewing** 🔧 クリエイティブ醸造
+
+- **住所:** 1675 N Elston Ave, Chicago, IL 60642
+- **営業時間:** 水-木 16:00-22:00、金 14:00-24:00、土 12:00-24:00、日 12:00-20:00
+- **アクセス:** Blue Line Damen駅から徒歩15分
+- **特徴:** 同じレシピを殆ど繰り返さない実験的ブルワリー
+- **おすすめ:** Ninja vs. Unicorn Double IPA、限定醸造各種
+- **価格帯:** パイント$6-9
+- **雰囲気:** アーティスティック、実験的
+
+### **Suncatcher Brewing** ☀️ Half Acre元ブルワーの新店
+
+- **住所:** 2101 W Fullerton Pkwy, Chicago, IL 60647
+- **営業時間:** 火-木 16:00-22:00、金 15:00-23:00、土 12:00-23:00、日 12:00-21:00
+- **アクセス:** Blue Line California駅から徒歩10分
+- **特徴:** 2022年オープン、Half Acreの元ヘッドブルワーが創業
+- **専門:** ミッドウェスト食材使用、タンクからダイレクト提供
+- **おすすめ:** Brown Ale、Stout、季節限定
+- **価格帯:** パイント$5-7
+- **雰囲気:** 明るい、広々、犬OK、外食持込OK
+
+---
+
+## 🍕 **食事併設の名店**
+
+### **Piece Pizzeria & Brewery** 🍕 ピザ＆受賞ビール
+
+- **住所:** 1927 W North Ave, Chicago, IL 60622
+- **営業時間:** 月-木 11:00-01:30、金 11:00-02:00、土 11:00-03:00、日 11:00-01:00
+- **アクセス:** Blue Line Damen駅から徒歩8分
+- **特徴:** ニューヘブン式ピザ＆クラフトビール
+- **受賞歴:** Top Shelf Wheat GABF 2009 金賞
+- **おすすめ:** Top Shelf Wheat、Golden Arm Pale Ale、薄焼きピザ
+- **価格帯:** パイント$4-6、ピザ$12-18
+- **雰囲気:** カジュアル、家族連れOK、スポーツバー的
+
+### **Moody Tongue** ⭐ ミシュラン星付きブルワリー
+
+- **住所:** 2136 S Peoria St, Chicago, IL 60608
+- **営業時間:** 水-土 17:00-22:00（要予約推奨）
+- **アクセス:** Pink Line 18th St駅から徒歩12分
+- **特徴:** 世界唯一のミシュラン星付きブルワリー（高級）
+- **専門:** シェフ主導のビール、料理とのペアリング
+- **価格帯:** パイント$8-15、コース料理$100+
+- **雰囲気:** 高級、洗練、特別な機会向け
+
+---
+
+## ☕ **ユニークなビアカフェ**
+
+### **Beermiscuous** ☕ ビアカフェの先駆者
+
+- **住所:** 1812 W Sunset Blvd, Chicago, IL 60622
+- **営業時間:** 火-木 16:00-22:00、金 15:00-23:00、土 12:00-23:00、日 12:00-21:00
+- **アクセス:** Blue Line Damen駅から徒歩5分
+- **特徴:** アメリカ初のビアカフェスタイル
+- **雰囲気:** 静か、勉強・読書OK、子供・犬OK
+- **おすすめ:** 厳選ローカルビール、コーヒーショップ的雰囲気
+- **価格帯:** パイント$5-8
+
+---
+
+## 🌍 **地域別アクセスマップ**
+
+### **Near North/River North（宿泊地周辺）**
+- Goose Island Taproom
+- Lagunitas Chicago
+
+### **West Town/Logan Square（レンタカー返却後）**
+- Revolution Logan Square
+- Forbidden Root
+- Maplewood Brewery & Distillery
+- Beermiscuous
+
+### **Malt Row/Irving Park（CTA Brown Line）**
+- Half Acre Balmoral
+- Spiteful Brewing
+- Dovetail Brewery
+- Begyle Brewing
+- **追加:** Cultivate by Forbidden Root
+
+### **Lincoln Park/North Side**
+- Off Color Brewing (The Mousetrap)
+- **追加:** Hopleaf Bar（少し北）
+
+### **その他エリア**
+- Metropolitan Brewing（Rockwell）
+- Suncatcher Brewing（Logan Square西）
+- Pipeworks Brewing（Bucktown）
+
+---
+
+## 🚊 **時間があれば追加したいルート**
+
+### **金曜夜（Decorah前夜）**
+**シカゴ追加制覇**
+- 18:00-19:00: **Off Color Brewing** 革新的醸造体験
+- 19:30-20:30: **Forbidden Root** 全米#1ブルワパブ
+
+### **土曜夜（Revolution後）**
+**Logan Square深堀り**
+- 21:30-22:30: **Maplewood** ビール＆カクテル
+- 23:00-: **The Map Room** 〆の格安パイント
+
+### **日曜午前（Half Acre前）**
+**Hopleaf朝活**
+- 09:00-10:00: **Suncatcher Brewing** 新進気鋭
+- 10:30-12:00: **Hopleaf Bar** 世界最高峰ビアバー
+
+**🍻 これで真のシカゴビール制覇が完成です！**
